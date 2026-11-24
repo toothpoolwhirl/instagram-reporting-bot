@@ -65,7 +65,7 @@ How Can I Get the Tool or Submit a Report? 📩
       <p>
 • Contact us through the Telegram username provided with the relevant service.
 
-⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
+⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
 
 Legal Notice ⚠️
 <p>
